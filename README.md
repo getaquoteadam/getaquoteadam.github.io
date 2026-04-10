@@ -1,0 +1,1 @@
+# getaquoteadam.github.io
